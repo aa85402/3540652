@@ -20,4 +20,4 @@
 
 赶快收藏本站，每天发现不一样的新番号，在这里真正做到“免费看日本AV”！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](亚洲资源在线-0907hm ）</span>
